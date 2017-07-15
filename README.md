@@ -4,8 +4,14 @@
   </tr>
   <tr>
 <td align=left>本页短网址：https://git.io/vQgU9<br/>
-本页面如遇打不开，请复制上面网址到谷歌浏览器<br/>
+本页如打不开，请复制上面网址到谷歌浏览器<br/>
 苹果用户直接复制到苹果自带浏览器打开<br/>
+◆推荐使用谷歌或火狐浏览器<br/>
+<a href="https://chrome.cn.uptodown.com/android">谷歌安卓版、</a>
+<a href="https://google-chrome.cn.uptodown.com/windows">win版、</a>
+<a href="https://chrome.cn.uptodown.com/iphone">苹果版、</a>
+<a href="https://google-chrome.cn.uptodown.com/mac">Mac版</a><br/>
+◆国产浏览器干扰浏览，请卸载<br/>
 </tr>
 <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg"/></td>
