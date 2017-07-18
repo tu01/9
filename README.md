@@ -40,7 +40,7 @@
   <td align=center>
 ◆◆◆九评共产党◆◆◆<br/>
 看懂当下，看清未来<br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&from=wnel">❤❤请点击在线浏览❤❤</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837&from=wnel">❤❤请点击在线浏览❤❤</a><br/>
    </tr>
   <tr>
       <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
@@ -60,7 +60,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=3:1&from=wnel">◆《九评》系列图 看清中国人苦难根源</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_2_1&current=3:1&from=wnel">◆《九评》系列图 看清中国人苦难根源</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=4:1&from=wnel">◆《九评》13周年 近3亿人退党退团退队</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=5:1&from=wnel">◆《九评》著名学者：当今乱世的解药</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=6:1&from=wnel">◆【特稿】九评问世13年 中国巨变在即</a><br/>
@@ -87,10 +87,10 @@
   <tr>
       <td align=left>
 ◆全球热门专辑<br/>
-◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年人心明</a><br/>
-◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FMTDWH.mp4&from=wnel">漫谈党文化</a><br/>
-◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
-◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FBNGCD&from=wnel">百年共产党</a><br/>
+◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816846&from=wnel">九评共产党：全球热传18年人心明</a><br/>
+◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816842&from=wnel">漫谈党文化</a><br/>
+◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816587&from=wnel">解体党文化</a><br/>
+◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833&from=wnel">百年共产党</a><br/>
 ◆<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816602&from=wnel">马克思的成魔之路</a><br/>
   </tr>
   <tr>
