@@ -48,6 +48,8 @@
   <tr>
     <td align=left>
 ◆主要内容◆<br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_14_2&from=wnel">共产主义不是出路而是绝路
+</a><br/>
 【一】评共产党是什么<br/>
 【二】评中国共产党是怎样起家的<br/>
 【三】评中国共产党的暴政<br/>
@@ -60,7 +62,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_2_1&current=3:1&from=wnel">◆《九评》系列图 看清中国人苦难根源</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_2_1&from=wnel">◆《九评》系列图 看清中国人苦难根源</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=4:1&from=wnel">◆《九评》13周年 近3亿人退党退团退队</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=5:1&from=wnel">◆《九评》著名学者：当今乱世的解药</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?4EC%2FJP.mp4&current=6:1&from=wnel">◆【特稿】九评问世13年 中国巨变在即</a><br/>
