@@ -48,7 +48,7 @@
   <tr>
     <td align=left>
 ◆主要内容◆<br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_14_2&from=wnel">【荐】共产主义不是出路而是绝路
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_14_2&from=wnel">【序】共产主义不是出路而是绝路
 </a><br/>
 【一】评共产党是什么<br/>
 【二】评中国共产党是怎样起家的<br/>
@@ -98,7 +98,7 @@
   <tr>
 <td align=left>◆百年共产党真相◆特稿<br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833&from=wnel">◆《大纪元时报》特刊：共产党百年真相</a><br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c818244&from=wnel">◆【特稿】迫害法轮功遭报应实录</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c813126&from=wnel">◆【特稿】迫害法轮功遭报应实录</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833_2_15&from=wnel">◆【特稿】感情代替不了理智</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833_2_901&from=wnel">◆【特稿】共产主义不是出路而是绝路（1）</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816833_2_900&from=wnel">◆【特稿】共产主义不是出路而是绝路（2）</a><br/>
