@@ -111,10 +111,10 @@
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c807209&from=wnel">◆◆中共害国，铁证如山</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c813172&from=wnel">◆◆中共卖国，证据确凿</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c813247&from=wnel">◆◆对中共无神论说“不”！</a><br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?http%3A%2F%2F140%2Fgb%2F13%2F7%2F2%2Fn3906831.htm&from=wnel">◆◆中共成立以来杀人记录！</a><br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F2%2F17%2Fn8822194.htm&from=wnel">◆◆中国共产党的杀人历史！</a><br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F1%2F3%2Fn8663018.htm&from=wnel">◆◆中共变异了西方世界的思维和行为</a><br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F4%2F9%2Fn9018949.htm&from=wnel">◆◆共产主义的淫乱基因——性解放</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c826766&from=wnel">◆◆中共成立以来杀人记录！</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c795808&from=wnel">◆◆中国共产党的杀人历史！</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c826769&from=wnel">◆◆中共变异了西方世界的思维和行为</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c826770&from=wnel">◆◆共产主义的淫乱基因——性解放</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c813246&from=wnel">◆◆共产主义是世界上最大恐怖主义</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c812504&from=wnel">◆◆共产主义是世界上最大邪教</a><br/>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c813248&from=wnel
