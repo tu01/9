@@ -48,7 +48,7 @@
   <tr>
     <td align=left>
 ◆主要内容◆<br/>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_14_2&from=wnel">共产主义不是出路而是绝路
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816837_14_2&from=wnel">【前言】共产主义不是出路而是绝路
 </a><br/>
 【一】评共产党是什么<br/>
 【二】评中国共产党是怎样起家的<br/>
